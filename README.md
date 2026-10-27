@@ -1,1 +1,0 @@
-# CNTT02_NMCNTT_KiemTraDauGio_SmartFarm.
